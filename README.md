@@ -25,7 +25,13 @@ NOW ENJOY IT :D
 
 
 
-what bro can do say open codeforces to open it in tab say kill google to oblirate the the google task run spofity to open spofity becouse why not?!?!?!?1?
+U NEEDA TALK
+run something 
+opens something app
+open something
+opens something in GOOGLE
+kill something
+kills something app
 
 
 
