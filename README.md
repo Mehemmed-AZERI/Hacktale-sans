@@ -22,3 +22,12 @@ STEP 5
 change index of mic (my lattop mic is dead used ma headphone mic so dont forget to change 😭)
 STEP 6
 NOW ENJOY IT :D
+
+
+
+what bro can do say open codeforces to open it in tab say kill google to oblirate the the google task run spofity to open spofity becouse why not?!?!?!?1?
+
+
+
+
+      
