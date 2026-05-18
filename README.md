@@ -26,12 +26,12 @@ NOW ENJOY IT :D
 
 
 U NEEDA TALK
-run something 
-opens something app
-open something
-opens something in GOOGLE
-kill something
-kills something app
+||run something ->
+opens something app||
+||open something->
+opens something in GOOGLE||
+||kill something->
+kills something app||
 
 
 
